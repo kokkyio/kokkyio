@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kokkyio
 - 👀 I’m interested in animes
-- 🌱 I’m currently learning idk
+- 🌱 I’m currently learning new languades
 - 💞️ I’m looking to collaborate on things
 - 📫 How to reach me gmail
 
